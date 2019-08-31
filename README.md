@@ -1,0 +1,1 @@
+# BTS-QUIZ-privacy-policy
